@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Nasty-dev
+- 👀 I’m interested in basketball and drawing and making music
+- 🌱 I’m currently learning high school stuff soon to learn coding bots
+- 💞️ I’m looking to collaborate on music mainly or someone to edit for free
+- 📫 How to reach me join my discord server it is in beta though not finished. https://discord.gg/PrN4UMKNdk
+- 🥰 Always looking for friends
+- 🦤 The only dodo that's not extinct
